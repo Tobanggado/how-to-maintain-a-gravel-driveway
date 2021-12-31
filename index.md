@@ -1,37 +1,25 @@
-## Welcome to GitHub Pages
+<h1>How To Maintain A Gravel Driveway</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-maintain-a-gravel-driveway/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Utilizing A Snowblower</a></li><li><a href="#toc-1">The Professionals And Cons To Putting In And Sustaining A Gravel Driveway</a></li><li><a href="#toc-2">Labor Prices</a></li><li><a href="#toc-3">Smooth The Driveway</a></li><li><a href="#toc-4">Crushed Stone #57</a></li><li><a href="#toc-7">Tips On How To Control Weeds</a></li></ul></div>
+<p>Another possibility is to deliver it to the store free of charge and decide it up from there. Snowblowers could be a little on the expensive aspect for lots of us. Big and hulking models are sometimes gasoline-powered, powerful to retailer, and can be overkill. Some smaller, electric models are getting into the market and these could be decent. Always consult equipment operator's manual and observe security directions earlier than operating or servicing any tractor or equipment, or trying any task. It will do a very good job however there is a studying curve concerned.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+<p>Soils differ by space, and there are many helpful professionals to seek the advice of if you’re uncertain of the way to method an adequate sub-grade. Divide that number by 27 to acquire cubic yards after which add four p.c to compensate for extra compaction. According to the MWPS manual, many states, counties and townships have permit necessities that specify the diameter, length and set up course of for a driveway culvert. The commonest culvert is made from corrugated metal pipe 26 toes lengthy with a 15-inch diameter.</p>
+<h2 id="toc-0">Utilizing A Snowblower</h2>
+<p>Your labor prices may have a large worth range attached, and these fluctuations are mostly due to the land’s situation earlier than you start the project. It’s very common for firms to return out and excavate the realm to around 12-inches down as a outcome of they’ll construct it back up with gravel. They’ll additionally need to grade and compact the area earlier than they lay the first layer of gravel down. When a gravel driveway is experiencing a washout, it can trigger quite a few issues with potholes and dips that would trigger issues if you're not in a position to properly maintain your driveway. This is one thing to contemplate when choosing the most effective driveway on your residence.</p>
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-maintain-a-gravel-driveway/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>You can remove the highest layers of snow and not have to fret about coming into contact with the gravel under. This article additionally recommends you utilize a daily shovel, quite than one made particularly for snow. Or, get a snowblower with adjustable augers designed for clearing snow from a gravel driveway. Yet one other means is to use snow melting mats you could put in your gravel driveway.</p>
+<h3 id="toc-1">The Professionals And Cons To Putting In And Maintaining A Gravel Driveway</h3>
+<p>To allow you to make your decision, there are a few things that you’ll need to contemplate. Cost, maintenance, and lifespan are all key considerations. You shouldn’t overlook aesthetics either, the type of look you need in your driveway can be important. "Good common details about the means to keep a dirt highway."</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>How a lot will a ton of gravel cover?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>A ton of gravel will cover roughly 100 sq. feet, 2 inches deep.</p></div>  </div></div>
+<p>Contact us to find out about the advantages of upgrading to an asphalt driveway. One of an important, and simplest, things that you can do to take care of your gravel driveway is to rake it often. This will assist to keep the surface level, and it allows you to remove any leaves, twigs, and different particles that may have gotten lodged in it.</p>
+<h3 id="toc-2">Labor Prices</h3>
+<p>The gravel truck driver will unfold the gravel out of a dump truck tailgate instantly onto your drive because it strikes from one end of the drive to the opposite. You can then use your rear blade or land plane once more to form it as wanted. Prepare your gravel drive for winter in the late fall.</p>
+<div style='text-align:center'><iframe width='563' height='312' src='https://www.youtube.com/embed/LKVkviZLhr8' frameborder='0' alt='how to maintain a gravel driveway' allowfullscreen></iframe></div>
+<p>Adding stone or gravel to a dust driveway is a straightforward solution to the issue. You already have the dirt pathway established, so that you simply build onto it. A stone driveway lasts for a couple of years with little upkeep different than occasional grading and smoothing. If you don't have a garden tractor with a front-end loader and a scraper blade, lease a small skid-steer loader with a loader and blade attachment that can assist you construct the gravel driveway. When a gravel driveway is put in or repaired it is important that the set up firm makes use of a roller to get good compaction. If you get a bid from an organization that doesn't use rollers look elsewhere.</p>
+<h2 id="toc-3">Smooth The Driveway</h2>
+<p>The lifespan of stamped concrete is the same as with plain concrete, around 30 years if nicely maintained. Other maintenance includes eradicating weeds from between every paver. This is best carried out with a sprayer and an anti-weed solution. Once the concrete is ready, try to maintain all very heavy autos off it if possible.</p>
+<ul><li>Marble chips make a very eye-catching and luxurious top layer on your driveway, but it’s not all the time the best selection.</li><li>See right here for the kind of cross section you want to emulate.</li><li>The list beneath features a variety of the best driveway rock on the market.</li></ul>
+<p>It's doubtless you will need some extra gravel added to your driveway so when the road is reshaped and the potholes are eliminated we then add gravel. 8' York type rake with gauge wheels with a sequence high link so it floats. Run at forty five degree angle to comb materials towards the center and clean out bumps, divets and irregularities within the surface. Then make a pass at zero angle down the center to add a flat top crown. I additionally advocate crushed asphalt millings as a prime coat. A lawn roller can embellish an already good driveway appearance, too.</p>
+<h3 id="toc-4">Crushed Stone #57</h3>
+<p>Stabilizing the driveway or including edging to help forestall the gravel from transferring also will increase your costs. Doing a chip seal driveway or using a premium material will make your gravel driveway costs go up too. Finally, multiply your variety of cubic yards by 1.13. This will give you a very tough estimate on what number of tons you should end your driveway.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>Can you tar a gravel driveway?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Building a tar-and-chip driveway is a pretty easy course of. First, as with most driveway supplies, a gravel base is put in. Then, hot liquid asphalt is poured over the gravel. ... Tar-and-chip could be installed over present driveway supplies, supplied they are in fairly good condition.</p></div>  </div></div>
